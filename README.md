@@ -4,6 +4,6 @@
 
 
 
-             ⠀　𒒬　　❛　　geno　　╱　　txt　　――――　　
+             ⠀　𒒬　　❛　　geno　　╱　　freyja　　――――　　
 
 
