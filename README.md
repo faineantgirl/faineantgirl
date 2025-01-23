@@ -1,6 +1,7 @@
 
 
-　　　　　　　　　　　　![Untitled537_20250123135211](https://github.com/user-attachments/assets/6fdb4724-c803-4b03-a24a-6da5f0311e8f)
+　　　　　　　　　　　　![IMG_1970](https://github.com/user-attachments/assets/20aae24a-b03c-44d8-870e-922acdc0d8f7)
+
 
 
              ⠀　𒒬　　❛　　geno　　╱　　txt　　――――　　
